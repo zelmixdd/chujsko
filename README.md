@@ -1,0 +1,2 @@
+# chujsko
+jebać papieża 
